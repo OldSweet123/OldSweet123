@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @OldSweet123
+- 👋 oi, meu nome e Joao Pedro
 - 👀 estou interessado a programar novas linguagens 
 - 🌱 estou aprendendo recentimente a programar novas linguagens
 - meu email de contato e joaojdodmrmdo@gmail.com
